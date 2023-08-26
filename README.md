@@ -5,4 +5,4 @@
 </div>
 
 # Assignment 1: Words
-Assignment 1
+Assignment 1: [https://www.youtube.com/watch?v=dQw4w9WgXcQ](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
